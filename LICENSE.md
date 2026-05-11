@@ -1,4 +1,4 @@
-
+Get the ultimate Strava for macOS integration with new Strava for macOS Integration | GPS-tracking + sync-with-wearables. Featuring GPS-tracking and sync-with-wearables, it's the
 
 
 
